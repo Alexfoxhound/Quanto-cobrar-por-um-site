@@ -2,7 +2,7 @@
 
 #Quanto cobrar por um site?
 
-Nesse vídeo falarei sobre o os principais critérios que devem ser levados em consideração na hora de cobrar por um site e como fazer esse cálculo.
+Nesse vídeo feito pela rafaballerini : https://www.youtube.com/watch?v=5LVqVcl9ICY fala sobre o os principais critérios que devem ser levados em consideração na hora de cobrar por um site e como fazer esse cálculo.
 Abertura do vídeo
 
 Oie gente! Sejam bem vindos a mais um vídeo aqui do canal, eu sou a Rafaella Ballerini e hoje vou ensinar a vocês o quanto vocês podem cobrar para fazer um site!
